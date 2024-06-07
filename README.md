@@ -11,4 +11,4 @@ Meu nome é Vinícius
 0000110226670xsp@al.educacao.sp.gov.br
 
 
-![descrição do GIF](link GIF do Tenor)
+![](https://i.pinimg.com/originals/58/6b/f3/586bf3842dbe4ce3d2ea04d4b27594d2.gif)
